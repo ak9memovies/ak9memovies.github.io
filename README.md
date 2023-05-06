@@ -1,1 +1,1 @@
-# ak9mee.github.io
+*ALL RIGHTS GO TO THE CREATOR*
