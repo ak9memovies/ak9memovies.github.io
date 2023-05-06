@@ -1,2 +1,2 @@
 ## *ALL RIGHTS GO TO THE CREATOR*
-HTTPS://github.com/skoolgq
+github.com/skoolgq
